@@ -1,1 +1,0 @@
-# kayhan-latifzadeh.github.io
